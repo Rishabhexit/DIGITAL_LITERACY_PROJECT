@@ -1,4 +1,4 @@
-# NGMC_PROJECT
+# DIGITAL LITERACY PROJECT
 Hi, I'm Rishabh Verma 👋
 
 About Me
